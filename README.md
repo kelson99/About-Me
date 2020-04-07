@@ -1,5 +1,5 @@
 About Me
 
-Spencer Curtis
+Kelson Hartle
 
-Favorite Color: Blue
+Favorite Color: Black
